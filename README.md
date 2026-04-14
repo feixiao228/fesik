@@ -11,3 +11,5 @@
 - ![tumblr_1775039c2fe0288d3fae78cfd00a685f_219d6f12_250](https://github.com/user-attachments/assets/e566bb1d-9282-4737-a61d-c02124b6bada)
   
 # FANDOMS
+- ![tumblr_26b04b7905a55c7381312ba01021ccde_80f77138_540](https://github.com/user-attachments/assets/f85e2a1d-bb4f-4e46-8b51-3332e70687cb)
+heaven official's blessing, cookie run kingdom, wuthering waves, zzz, honkai star rail, genshin, the scum villain's self-saving system, windy31, EBLⱯN SQUAD, my hero academia, bsd, angel of slaughter, danganronpa, fnaf, all for game, link click, mlp, mouthwashing, nu carnival, mobile legends: bang bang, arcane, chainsaw man, jujutsu kaisen, helluva boss, hazbin hotel, needy streamer overload, omori, tiny bunny, angel's friends, SK8 the infinity, bendy, sonic the hedgehog, warrior cats, диллерон и миникотик!!!, afk journey, nice to meet you, kami-sama, noragami, повесть о лунной принцессе, карнавальный фантазм, spy x family, rokka: braves of the six flowers, horimiya, silent voice, я чую сонячне проміння!, Seraph of the end, +++
