@@ -8,6 +8,8 @@
 
 - *Я* - **Феся / Фейсяо**
 - ![tumblr_2eee6ac933285d921e33d759c859f778_035dc5bd_400](https://github.com/user-attachments/assets/313efc94-60cb-4f22-947d-f1315792223d)
+- ![tumblr_37ba19f20bdc1f318ccd7bc436660cf4_344e7f03_250](https://github.com/user-attachments/assets/9379a2e8-043a-44da-b16a-bc7ef5e894ba)
+
 - ![tumblr_1775039c2fe0288d3fae78cfd00a685f_219d6f12_250](https://github.com/user-attachments/assets/e566bb1d-9282-4737-a61d-c02124b6bada)
   
 # FANDOMS
@@ -26,6 +28,17 @@
 
 **MY HERO ACADEMIA: izuku/katsuki, toga/ochako**
 - <img width="540" height="72" alt="tumblr_492c09fa717ea0106782e85570dbd725_4aa9ac5e_540" src="https://github.com/user-attachments/assets/d008aeed-0439-467e-b234-16979e9bedfb" />
+# KINN LIST
+- <img width="99" height="56" alt="tumblr_49841f260f53a6abd84e7acdd2536b27_5bf97ef8_100" src="https://github.com/user-attachments/assets/cede4d83-82f2-489e-bc50-1c3768aff5de" /> ![tumblr_485260a0bb229d574a1e1247b072a0e3_5bd333ad_100](https://github.com/user-attachments/assets/710a8754-28ff-4662-b8a9-7c81cec751cf) ![tumblr_2005a276a8f3a3f5cb97b354fec4baa3_0fc565af_100](https://github.com/user-attachments/assets/98e385be-a4d5-4405-9dc6-08ed55943986) ![tumblr_d861377149fbd960f96b9f522205ea25_4c8942ca_100](https://github.com/user-attachments/assets/616ee97b-5673-4506-bc23-8a69922d3ca3) ![tumblr_36f7acebf5d5732e15bbd5de374fe166_7337f4a5_100](https://github.com/user-attachments/assets/099d6443-6bc7-4134-bc72-619a56016f3b) ![tumblr_39abcf405b27b01304a716692aa4d1f8_93f268b3_250](https://github.com/user-attachments/assets/4baf5007-eb22-451c-b1ea-7c5ef867a6eb) ![tumblr_6af19b68d851de4e9068a27ca826bf9e_82b3f444_100](https://github.com/user-attachments/assets/7082dcea-b96c-4096-855e-8b803bb8c559) ![tumblr_6b076286bfb4e6cabf18cbe213ba8ee9_d0312e8e_100](https://github.com/user-attachments/assets/ac96122d-6252-46fb-8305-e9889990f3f7)
+
+
+
+
+
+
+
+
+
 # падпишитеся на тгк моих любимых друзяшек :3
 
 - https://t.me/Adno_ok0
