@@ -1,5 +1,9 @@
 <div align="center"> 
-<img width="540" height="57" alt="tumblr_81ef4ef6cb01ef7b21cd52baf25f43d1_8dd52fa9_540" src="https://github.com/user-attachments/assets/5d19678a-bb5b-41b2-bf0f-6e972b5a8ad0" />
+
+# <img width="540" height="57" alt="tumblr_81ef4ef6cb01ef7b21cd52baf25f43d1_8dd52fa9_540" src="https://github.com/user-attachments/assets/76172de5-5d6a-4350-84a7-23647d1fdbf1" />
+
+<div align="center"> 
+
 # HI THERE ✦ ꉂ(˵˃ ᗜ ˂˵)
 -
 - <img width="540" height="304" alt="tumblr_aef738ac5434d9c85398dd7ea7ac887c_e1f6e641_540" src="https://github.com/user-attachments/assets/b76f44c9-607f-4283-9014-d98fcf496f09" />
