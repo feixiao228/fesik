@@ -13,7 +13,16 @@
 # FANDOMS
 - ![tumblr_26b04b7905a55c7381312ba01021ccde_80f77138_540](https://github.com/user-attachments/assets/f85e2a1d-bb4f-4e46-8b51-3332e70687cb)
 
-- **heaven official's blessing, cookie run kingdom, wuthering waves, zzz, honkai star rail, genshin, the scum villain's self-saving system, windy31, EBLⱯN SQUAD, my hero academia, bsd, angel of slaughter, danganronpa, fnaf, all for game, link click, mlp, mouthwashing, nu carnival, mobile legends: bang bang, arcane, chainsaw man, jujutsu kaisen, helluva boss, hazbin hotel, needy streamer overload, omori, tiny bunny, angel's friends, SK8 the infinity, bendy, sonic the hedgehog, warrior cats, диллерон и миникотик!!!, afk journey, nice to meet you, kami-sama, noragami, повесть о лунной принцессе, карнавальный фантазм, spy x family, rokka: braves of the six flowers, horimiya, silent voice, я чую сонячне проміння!, Seraph of the end, The Amazing Digital Circus, Cosmic Princess Kaguya, ++ others**
+- **heaven official's blessing, cookie run kingdom, wuthering waves, zzz, honkai star rail, genshin, the scum villain's self-saving system, windy31, EBLⱯN SQUAD, my hero academia, bsd, angel of slaughter, danganronpa, fnaf, all for game, link click, mlp, mouthwashing, nu carnival, mobile legends: bang bang, arcane, chainsaw man, jujutsu kaisen, helluva boss, hazbin hotel, needy streamer overload, omori, tiny bunny, angel's friends, SK8 the infinity, bendy, sonic the hedgehog, warrior cats, диллерон и миникотик!!!, afk journey, nice to meet you, kami-sama, noragami, повесть о лунной принцессе, карнавальный фантазм, spy x family, rokka: braves of the six flowers, horimiya, silent voice, я чую сонячне проміння!, Seraph of the end, The Amazing Digital Circus, Cosmic Princess Kaguya, Alien Stage,  ++ others**
 -
 # FAV PAIRINGS 
--
+- <img width="540" height="72" alt="tumblr_8e73934fb2316faf5e4785148904798a_fd7005a5_540" src="https://github.com/user-attachments/assets/7e92b95c-5b46-41dd-957c-076b1d0145f8" />
+
+- **hsr: acheron/black swan, boothill/argenti, jingliu/baiheng, kafka/himeko, doctor ratio/aventurine, caelus/dan heng, stelle/march 7, sparkle/robin, the gerta/ruan mei, midei/phaenon, sampo/gepard, bronya/seele, jing yuan/blade, ++**
+
+**genshin: yae miko/raiden, neuvillette/wriothesley, alhaitham/kaveh, cyno/tighnari, navia/clorinde, nefer/lauma, ++**
+
+**cookie run: shadow milk cookie/pure vanilla cookie, shadow milk cookie/black sapphire cookie, black sapphire cookie/silverbell cookie, black forest cookie/wedding cake cookie, eternal sugar cookie x hollyberry cookie ++**
+
+**my hero academia: izuku/katsuki, toga/ochako**
+- <img width="540" height="72" alt="tumblr_492c09fa717ea0106782e85570dbd725_4aa9ac5e_540" src="https://github.com/user-attachments/assets/d008aeed-0439-467e-b234-16979e9bedfb" />
