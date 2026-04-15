@@ -26,3 +26,11 @@
 
 **MY HERO ACADEMIA: izuku/katsuki, toga/ochako**
 - <img width="540" height="72" alt="tumblr_492c09fa717ea0106782e85570dbd725_4aa9ac5e_540" src="https://github.com/user-attachments/assets/d008aeed-0439-467e-b234-16979e9bedfb" />
+# падпишитеся на тгк моих любимых друзяшек :3
+- <img width="400" height="400" alt="tumblr_83665c0caf4f1cb65d882c506888fd0a_86c55d63_400" src="https://github.com/user-attachments/assets/d94100e4-b561-4554-a750-dcb628760c11" />
+
+- https://t.me/Adno_ok0
+- https://t.me/ArtsMattInk
+- https://t.me/vioriiii
+- https://t.me/susadusa
+- https://t.me/khdwqi
