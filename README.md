@@ -18,11 +18,11 @@
 # FAV PAIRINGS 
 - <img width="540" height="72" alt="tumblr_8e73934fb2316faf5e4785148904798a_fd7005a5_540" src="https://github.com/user-attachments/assets/7e92b95c-5b46-41dd-957c-076b1d0145f8" />
 
-- **hsr: acheron/black swan, boothill/argenti, jingliu/baiheng, kafka/himeko, doctor ratio/aventurine, caelus/dan heng, stelle/march 7, sparkle/robin, the gerta/ruan mei, midei/phaenon, sampo/gepard, bronya/seele, jing yuan/blade, ++**
+- **HSR: acheron/black swan, boothill/argenti, jingliu/baiheng, kafka/himeko, doctor ratio/aventurine, caelus/dan heng, stelle/march 7, sparkle/robin, the gerta/ruan mei, midei/phaenon, sampo/gepard, bronya/seele, jing yuan/blade, ++**
 
-**genshin: yae miko/raiden, neuvillette/wriothesley, alhaitham/kaveh, cyno/tighnari, navia/clorinde, nefer/lauma, ++**
+**GENSHIN: yae miko/raiden, neuvillette/wriothesley, alhaitham/kaveh, cyno/tighnari, navia/clorinde, nefer/lauma, ++**
 
-**cookie run: shadow milk cookie/pure vanilla cookie, shadow milk cookie/black sapphire cookie, black sapphire cookie/silverbell cookie, black forest cookie/wedding cake cookie, eternal sugar cookie x hollyberry cookie ++**
+**COOKIE RUN KINGDOM: shadow milk cookie/pure vanilla cookie, shadow milk cookie/black sapphire cookie, black sapphire cookie/silverbell cookie, black forest cookie/wedding cake cookie, eternal sugar cookie x hollyberry cookie ++**
 
-**my hero academia: izuku/katsuki, toga/ochako**
+**MY HERO ACADEMIA: izuku/katsuki, toga/ochako**
 - <img width="540" height="72" alt="tumblr_492c09fa717ea0106782e85570dbd725_4aa9ac5e_540" src="https://github.com/user-attachments/assets/d008aeed-0439-467e-b234-16979e9bedfb" />
